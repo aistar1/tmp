@@ -6,6 +6,7 @@
 
 [pdf](https://drive.google.com/file/d/1aJ9tNF-mmDrcHsfBqR7g-0CE02yO4dGa/view?usp=sharing)
 
+[score](https://drive.google.com/file/d/1I5xe7U_nol7PmFa4fbTJ25s__3Grr-IO/view?usp=sharing)
 
 [r](https://drive.google.com/file/d/16RsJ9qJO5EAWDyYCLYnx24fJbjv_uOc3/view?usp=share_link)
 
