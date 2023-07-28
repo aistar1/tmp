@@ -14,3 +14,7 @@
 
 
 [new](https://docs.google.com/presentation/d/1VFqRIbznUgDgp1bOrB5eQe9KeydDkPLD5Smvf1bbDdg/edit?usp=drive_link)
+
+
+
+[hund](https://drive.google.com/drive/folders/1eX369PtQI6kVVKGa4OoNFMLnd92DzXQc?usp=sharing)
